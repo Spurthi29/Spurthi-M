@@ -1,1 +1,1 @@
-# Spurthi-M
+# Spurthi M
